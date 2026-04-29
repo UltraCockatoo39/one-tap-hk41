@@ -1,4 +1,4 @@
-
+one tap Script hidden is the best one tap Script, featuring unlimited stamina and god mode. Safe and powerful for all your needs.
 
 
 
